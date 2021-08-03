@@ -1,33 +1,29 @@
 ---
 templateKey: blog-post
-title: Making sense of the SCAA’s new Flavor Wheel
+title: Why We Should Not Leave Things Unfinished
 date: 2016-12-17T15:04:10.000Z
+description: The Coffee Taster’s Flavor Wheel, the official resource used by
+  coffee tasters, has been revised for the first time this year.
 featuredpost: false
-featuredimage: /img/flavor_wheel.jpg
-description: The Coffee Taster’s Flavor Wheel, the official resource used by coffee tasters, has been revised for the first time this year.
+featuredimage: /img/why-should-we-not-leave-things-behind.jpg
 tags:
-  - flavor
-  - tasting
+  - Visualization
+  - Motivation thoughts
+  - never give up
+  - Motivation quotes
 ---
-![flavor wheel](/img/flavor_wheel.jpg)
+## START WITH A VISION
 
-The SCAA updated the wheel to reflect the finer nuances needed to describe flavors more precisely. The new descriptions are more detailed and hence allow cuppers to distinguish between more flavors.
+**Do you start things and leave them without going to the end?** Presumably, most of us do this at some point in our life either while studying or trying to do something different.
 
-While this is going to be a big change for professional coffee tasters, it means a lot to you as a consumer as well. We’ll explain how the wheel came to be, how pros use it and what the flavors actually mean.
+![Leaving Behind](/img/why-should-we-not-leave-things-behind.jpg)
 
-## What the updates mean to you
+You know every beginning has an end, the end seems so much beautiful if you start it with a **VISION**.
 
-The Specialty Coffee Association of America (SCAA), founded in 1982, is a non-profit trade organization for the specialty coffee industry. With members located in more than 40 countries, SCAA represents every segment of the specialty coffee industry, including:
+Visualization is a mental process to create an image or situation in your mind. It is a powerful weapon. It gives you the strength to **start** things with a positive attitude even though there are obstacles in your way.
 
-* producers
-* roasters
-* importers/exporters
-* retailers
-* manufacturers
-* baristas
+When you visualize things in your mind, it will not even help you to take a step forward in your life but it will also help you to get success. You know one thing, leaving things in the middle is not the only solution, **you can't easily give up on things if they really matter to you.**
 
-For over 30 years, SCAA has been dedicated to creating a vibrant specialty coffee community by recognizing, developing and promoting specialty coffee. SCAA sets and maintains quality standards for the industry, conducts market research, and provides education, training, resources, and business services for its members.
+If you feel low, then see front and back by asking yourself why you started it? See yourself  in the situation where you will get it instead of leaving it. Feel the moment feel the joy of getting it. Just feel it with your soul. It will help you to build your confidence.
 
-Coffee cupping, or coffee tasting, is the practice of observing the tastes and aromas of brewed coffee. It is a professional practice but can be done informally by anyone or by professionals known as "Q Graders". A standard coffee cupping procedure involves deeply sniffing the coffee, then loudly slurping the coffee so it spreads to the back of the tongue.
-
-The coffee taster attempts to measure aspects of the coffee's taste, specifically the body (the texture or mouthfeel, such as oiliness), sweetness, acidity (a sharp and tangy feeling, like when biting into an orange), flavour (the characters in the cup), and aftertaste. Since coffee beans embody telltale flavours from the region where they were grown, cuppers may attempt to identify the coffee's origin.
+**BUT learn not to quit never ever. Don't leave the things until you get it.** 
